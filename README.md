@@ -7,7 +7,7 @@ For esports betting enthusiasts aiming to maximize their first deposit, the Thun
   <tr>
     <th>✅ Product</th>
     <th>Promo Code</th>
-    <th>Exculise Bonus</th>
+    <th>Exclusive Bonus</th>
   </tr>
   <tr>
     <td>➡️ Thunderpick Promo Code</td>
